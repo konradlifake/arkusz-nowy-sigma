@@ -1,0 +1,2 @@
+# arkusz-nowy-sigma
+arjysz
